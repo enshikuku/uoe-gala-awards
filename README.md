@@ -1,1 +1,0 @@
-# uoe-gala-awards
